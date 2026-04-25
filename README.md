@@ -13,7 +13,6 @@
 如需咨询合作或技术支持，欢迎通过以下方式沟通：
 
 - **WeChat**：Gaoyc408 ✅
-  
 
 - **Telegram**：[@WorldTreeTech](https://t.me/worldtreetech) 📱
 
